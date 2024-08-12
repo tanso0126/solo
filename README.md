@@ -1,1 +1,1 @@
-# RPSTTTsolo
+RSPTTT solo play
